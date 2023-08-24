@@ -28,11 +28,13 @@
 
 ## PlutoPlayer [123云盘](https://www.123pan.com/s/RLY9-YZ3pH)
 
-## 手机端 [蓝奏云](https://cyao.lanzouk.com/b0ehcgwmj) 密码666
+## 手机端 密码666 [蓝奏云分享](https://cyao.lanzouk.com/b0ehcgwmj)
+
+<img  width="376" height="376" src="https://github.com/cyao2q/files/assets/10820724/19c4e392-222b-475c-97fd-07ecf08accc6" />
 
 ## 盒子软件 [分享迷](https://www.fenxm.com/tv)
 
- [飞视浏览器](https://cyao.lanzouy.com/irdJv08lt7bc) [表情浏览器](https://cyao.lanzouk.com/iIo760eynebc)
+[飞视浏览器](https://cyao.lanzouy.com/irdJv08lt7bc) [表情浏览器](https://cyao.lanzouk.com/iIo760eynebc)
 
 [儿歌多多](https://www.fenxm.com/613.html) [秒看电视](https://www.fenxm.com/862.html) [神鸟电视](https://www.fenxm.com/908.html)
 
